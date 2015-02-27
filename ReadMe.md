@@ -6,4 +6,6 @@ Sabrina tai niubi la!!!!
 
 Happy birthday to Big Peigen!!!!
 
-sooooooooooooooooooo fun~~
+sooooooooooooooooooo fun~
+
+coding is fun but sometimes too hard....
